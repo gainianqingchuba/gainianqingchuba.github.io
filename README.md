@@ -1,2 +1,1 @@
-# gainianqingchuba.github.io
-a blog
+咸鱼干佬太强了
